@@ -3,7 +3,6 @@
 - 🌱 I’m currently learning NOTHING
 - 💞️ I’m looking to collaborate on NOTHING
 - 📫 How to reach me YOU CANT
-- 😄 Pronouns: Dunk/tekk
 - ⚡ Fun fact: NOTHING
 
 <!---
